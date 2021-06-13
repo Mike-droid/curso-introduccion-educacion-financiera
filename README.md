@@ -305,3 +305,67 @@ Ahora, en el desapalancamiento no se puede reducir la tasa de interés para reac
 
 Y una vez corregido el rumbo, todo vuelve a comenzar. Por el tiempo que toman en formarse las depresiones, es probable que no te toquen en tu vida productiva (o quien sabe, porque ya han pasado 12 años de la última…), los ciclos de recesión seguro que te van a tocar. Por lo tanto, aquí también aplican las recomendaciones pasadas: gasta menos de lo que ganas, siempre gana más dinero que antes, y crea una red financiera a corto, mediano y largo plazo.
 
+## Mis finanzas, mi responsabilidad
+
+### No seas parte de la estadística
+
+- Chile: 12,400,000 tarjetas de crédito vigentes
+- México: solo el 47% de la población está bancarizada
+- Paraguay: solo 12% ahorra formalmente
+- Ecuador: El 96% de la población nunca ha recibido educación financiera
+
+### Define tu responsabilidad
+
+Toma el volante. **Nadie cuidará el dinero como tú**.
+
+Tu familia inculcó tus hábitos financieros, si son malos, haz la diferencia.
+
+Vale más estar preparado para los siniestros.
+
+Un siniestro es el acto o acontecimiento accidental, imprevisto, inesperado y súbito.
+
+- Afecciones de la salud.
+- Pérdida del patrimonio.
+- Riesgo legal.
+
+¡Contrata los seguros!
+
+No te juntes con personas que sólo te quitan dinero. Debes saber escoger tus amistades.
+
+El gobierno **NO** es tu respaldo financiero.
+
+### Actuar racionalmnete con el dinero
+
+[50 sesgos cognitivos a tomar en cuenta para ser una mejor versión de ti mismo](https://ceciliacorespsicologa.es/wp-content/uploads/2020/02/50-sesgos-cognitivos-infografia.png)
+
+[20 sesgos cognitivos usados en marketing](https://vykthors.files.wordpress.com/2020/01/infografia-sesgos-marketing-jorgepinero.jpg)
+
+#### Economía del comportamiento
+
+Estudia por qué a veces nos comportamos de manera ilógica, aún en contra de nosotros mismos. Intenta comprender, todo lo que influye a las personas en sus decisiones para crear modelos económicos más umanos.
+
+- La publicidad, para incentivar el consumo, conoce las maneras irracionales en las que actuamos. **Y las usa en tu contra**.
+
+¿Cómo puedes actuar más racionalmente?:
+
+- Sé el soberano de tus finanzas -> Tú decides qué hacer, **TÚ TIENES EL PODER**.
+- Sal de deudas lo antes posible.
+
+- Detecta a qué tipo de influencia eres más susceptible (para eso vean la imagen de los sesgos cognitivos)
+
+Libros recomendados:
+
+- Las trampas del dinero, Dan Ariely y Jeff Kreisler
+- Un pequeño empujón (Nudge), Richard H. Thaler y Cass R. Sustein
+- La falsa ilusión del éxito, Daniel Kahneman
+
+### Incrementa tu productividad
+
+1. Ten más fuentes de ingresos.
+2. Establece metas de productividad financiera.
+3. Otórgate el permiso de ampliar tus expectativas de la vida.
+4. Aprende de los errores de tu país.
+5. Decide crecer mediente la productividad y no mediante la deuda.
+
+> La educación formal te dará una manera de ganarte la vida. La autoeducación te hará ganar una fortuna. - Jim Rohn
+
