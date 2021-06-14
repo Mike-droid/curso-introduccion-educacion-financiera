@@ -369,3 +369,74 @@ Libros recomendados:
 
 > La educación formal te dará una manera de ganarte la vida. La autoeducación te hará ganar una fortuna. - Jim Rohn
 
+## Repasos financieros de nuestros cursos
+
+### Conoce los cursos de Escuela de Finanzas Personales: nivel básico
+
+#### Recalibración y auditoría
+
+Cada cierto timepo, necesitamos recalibrar en nuestros gastos y realizar una auditoría monetaria.
+
+#### Presupuestar estratégicamente
+
+Rendir cuentas a veces puede ser muy cansado y estresante. Si presupuestas estratégicamente, tienes mejores resultados.
+
+#### Crear ingresos
+
+Después de cada nuevo curso existe la probabilidad de generar otra fuente de ingresos.
+
+#### Ve un paso adelante
+
+Usa Excel para apreciar mejor tus finanzas
+
+### Conoce los cursos de Escuela de Finanzas Personales: nivel intermedio
+
+#### Deudas estratégicas
+
+Aprende a poner a tu favor los créditos, complementa tu entrenamiento económico.
+
+#### LLeva a otro nivel tus finanzas
+
+Conoce y crea tus propios archivos financieros, lleva tus emprendimientos a otro nivel.
+
+#### Tu "yo" del futuro
+
+Finanzas personales para el futuro. Hay arquetipos financieros.
+
+#### Emprendedor exitoso
+
+Diseña tu historia de éxito, conoce el camino para ser emprendedor.
+
+#### La "nueva" economía digital
+
+Criptomonedas
+
+### Conoce los cursos de Escuela de Finanzas Personales: nivel avanzado
+
+#### Ingresos extras
+
+Descubre tu faceta de inversor. Diversifica ingresos.
+
+#### Refugio financiero
+
+Trading con Criptomonedas
+
+#### Automatización financiera
+
+Genera utilidades a corto plazo de manera dinámica con el lenguaje de programación "R".
+
+## Habilidades financieras que desarrollarás
+
+### Crea fortaleza interna: aprende a dominar la satisfacción inmediata
+
+- Evitamos actuar de una manera irracional
+- Ir un paso adelante
+- Aprender a reconocer tus habilidades, dones y talentos
+- Ser flexible al cambio monetario
+- Incremento paulatino de tu perfil de inversionista
+- Ir un paso adelante en tus finanzas
+- Transformar tu relación con el dinero
+
+## Platzi como estrategia de inversión
+
+### Nunca pares de aprender
